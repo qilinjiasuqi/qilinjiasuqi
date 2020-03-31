@@ -19,3 +19,6 @@ https://www.lanzous.com/iasemcb
 重要说明：rar压缩包文件的解压密码是【5611】
 
 4.把电脑上的apk安装包文件，同步，传输到安卓手机上进行安装。
+
+5.麒麟加速器官网  （需要科学上网才能打开）
+https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html

@@ -22,3 +22,5 @@ https://www.lanzous.com/iasemcb
 
 5.麒麟加速器官网  （需要科学上网才能打开）
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
+
+仅供学习交流使用!

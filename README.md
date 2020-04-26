@@ -6,7 +6,7 @@
 下载方式有 4 种：
 
 
-1.第一种下载方式
+1.第一种下载方式，
 鼠标点击右边绿色【Clone or download】按钮，弹出【Download ZIP】，点击【Download ZIP】，下载ZIP压缩包，里面包含apk安装文件
 （百分之百能下载到电脑上，只是网速比较慢）
 
@@ -18,7 +18,7 @@ https://abc567.lanzous.com/ibx7hcf
 （如果网盘链接失效，请用第一种下载方式）
 
 
-3.第三种下载方式
+3.第三种下载方式，
 百度网盘下载链接，用电脑浏览器访问打开这个网址
 https://pan.baidu.com/s/1L-cXNkg1Bsp9YDdxC96-Gw
 
@@ -29,7 +29,7 @@ https://pan.baidu.com/s/1L-cXNkg1Bsp9YDdxC96-Gw
 
 
 
-4.第四种下载方式
+4.第四种下载方式，
 国内网盘下载，用电脑浏览器访问打开这个网址
 https://www.lanzous.com/iasemcb
 重要说明：rar压缩包文件的解压密码是【5611】

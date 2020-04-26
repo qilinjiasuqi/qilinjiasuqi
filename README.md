@@ -15,7 +15,7 @@
 
 国内网络可直接访问下载，下载速度快，点击下面的网盘链接，进入下载apk安装包文件
 https://abc567.lanzous.com/ibx7hcf
-
+（如果网盘链接失效，请用第一种下载方式）
 
 
 3.第三种下载方式
@@ -29,7 +29,7 @@ https://pan.baidu.com/s/1L-cXNkg1Bsp9YDdxC96-Gw
 
 
 
-.第四种下载方式
+4.第四种下载方式
 国内网盘下载，用电脑浏览器访问打开这个网址
 https://www.lanzous.com/iasemcb
 重要说明：rar压缩包文件的解压密码是【5611】

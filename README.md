@@ -24,21 +24,22 @@ https://pan.baidu.com/s/1L-cXNkg1Bsp9YDdxC96-Gw
 
 
 3.第三种下载方式，
-国内网盘下载，用电脑浏览器访问打开这个网址
-https://www.lanzous.com/iasoiuf
-重要说明：rar压缩包文件的解压密码是【5611】
+国内网盘下载，速度快，用浏览器访问打开这个网址
+https://kyjsq.lanzous.com/iccqbkb
 
 （如果网盘链接失效，请用第一种下载方式）
 
 
+4.第四种下载方式，
+国内网盘下载，速度快
+https://t.cn/A6ApAcZv
 
 
 
+5.最后，把电脑上的apk安装包文件，同步，传输，发送到安卓手机上进行安装。
 
-4.最后，把电脑上的apk安装包文件，同步，传输，发送到安卓手机上进行安装。
 
-
-5.麒麟加速器官网  （需要科学上网才能打开）
+6.麒麟加速器官网  （需要科学上网才能打开）
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
 仅供学习交流使用!

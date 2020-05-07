@@ -43,3 +43,7 @@ https://t.cn/A6ApAcZv
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
 仅供学习交流使用!
+
+只要给邮箱qinhaihai56@gmail.com发送任何邮件，我都会第一时间回复，把最新的家速气获取地址邮件回复告知你。
+
+请记得保存我的邮箱地址  qinhaihai56@gmail.com

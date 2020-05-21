@@ -23,7 +23,8 @@ https://ww.lanzous.com/icr7hgj
 3.第三种下载方式，
 百度网盘下载链接，下载速度快，用电脑浏览器访问打开这个网址,保存到你的百度网盘。
 
-链接: https://pan.baidu.com/s/1Ka-0lwU6UI97ghJfMCWHpQ 提取码: 6ujj
+链接
+https://pan.baidu.com/s/1Ka-0lwU6UI97ghJfMCWHpQ 提取码: 6ujj
 
 把网盘里的压缩包文件下载到电脑，rar文件解压密码是：【5611】，压缩包里包含麒麟apk安装文件。
 

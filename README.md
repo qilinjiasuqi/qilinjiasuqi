@@ -36,7 +36,7 @@ https://ww.lanzous.com/icr7hgj
 5.麒麟加速器官网  （需要科学上网才能打开）
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
-麒麟加速器仅供游戏，视频，娱乐，学习，交流，社交app使用!谢绝一切极端郑智人士注册!
+麒麟加速器仅供游戏，视频，娱乐，学习，交流，社交app使用。---谢绝一切极端郑智人士注册!
 
 【免费】 每月免费增送300M流量，纯公益项目，请节约使用。
 

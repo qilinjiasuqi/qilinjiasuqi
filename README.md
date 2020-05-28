@@ -23,8 +23,7 @@ https://ww.lanzous.com/icr7hgj
 3.第三种下载方式，
 百度网盘下载链接，下载速度快，用电脑浏览器访问打开这个网址,保存到你的百度网盘。
 
-链接
-https://pan.baidu.com/s/1Ka-0lwU6UI97ghJfMCWHpQ 提取码: 6ujj
+链接: https://pan.baidu.com/s/1n6P0yN8oxxmi8SQdBXLgoQ 提取码: u4u7
 
 把网盘里的压缩包文件下载到电脑，rar文件解压密码是：【5611】，压缩包里包含麒麟apk安装文件。
 
@@ -37,8 +36,20 @@ https://pan.baidu.com/s/1Ka-0lwU6UI97ghJfMCWHpQ 提取码: 6ujj
 5.麒麟加速器官网  （需要科学上网才能打开）
 https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
-仅供学习交流使用!
+麒麟加速器仅供游戏，视频，娱乐，学习，交流使用!
+
+【免费】 每月免费增送300M流量，纯公益项目，请节约使用。
+
+【稳定】 我们在全球部署了上百台服务器，采用负载均衡技术，可用率达99.999%。
+
+【高速】 采用企业级BPG线路，配合最优路径智能选择算法，麒麟加速器的速度和稳定性都是非常优秀的。
+
+【无广告】 去除繁乱的广告，界面清新美观，强迫症者必选的加速器。
+
+【保护隐私】 安装后一键连接，无需填写任何注册信息，同时强大的SSL加密技术与IP隐藏，让您完全匿名，安全无忧。
 
 只要给邮箱qinhaihai56@gmail.com发送任何邮件，我都会第一时间回复，把最新的家速气获取地址邮件回复告知你。
+
+如5分钟后没收到请查看邮件垃圾箱。
 
 请记得保存我的邮箱地址  qinhaihai56@gmail.com

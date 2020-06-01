@@ -55,3 +55,9 @@ https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.ht
 如5分钟后没收到请查看邮件垃圾箱。
 
 请记得保存我的邮箱地址  qinhaihai56@gmail.com
+
+-----【Telegram 电报群频道】-----
+
+https://t.me/qilinjiasu
+
+

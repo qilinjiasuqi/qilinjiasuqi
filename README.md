@@ -7,7 +7,7 @@
 
 
 1.第一种下载方式，
-鼠标点击右边绿色【Clone or download】按钮，弹出【Download ZIP】，点击【Download ZIP】，下载ZIP压缩包，里面包含apk安装文件
+电脑上浏览器访问，鼠标点击右边绿色【Clone or download】按钮，弹出【Download ZIP】，点击【Download ZIP】，不一会儿电脑浏览器会出现正在下载，下载ZIP压缩包，里面包含apk安装文件
 （百分之百能下载到电脑上，只是网速比较慢）
 
 

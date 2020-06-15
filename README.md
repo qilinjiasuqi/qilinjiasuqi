@@ -13,7 +13,7 @@
 
 2.第二种下载方式，
 国内网盘下载，速度快，用浏览器访问打开这个网址
-https://ww.lanzous.com/icr7hgj
+https://wws.lanzous.com/iisALdhcm3c
 
 （如果网盘链接失效，请用第一种下载方式）
 
@@ -56,8 +56,6 @@ https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.ht
 
 请记得保存我的邮箱地址  qinhaihai56@gmail.com
 
------【Telegram 电报群频道】-----
 
-https://t.me/qilinjiasu
 
 

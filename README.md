@@ -15,7 +15,7 @@
 国内网盘下载，速度快，用浏览器访问打开这个网址
 https://wws.lanzous.com/iisALdhcm3c
 
-备用下载链接1：https://t.cn/A6LHeYMZ
+备用下载链接1：
 
 备用下载链接2：https://c-t.work/s/17c2610b68234a
 

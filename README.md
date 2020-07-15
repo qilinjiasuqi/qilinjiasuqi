@@ -13,7 +13,7 @@
 
 2.第二种下载方式，
 国内网盘下载，速度快，用浏览器访问打开这个网址
-https://wws.lanzous.com/iisALdhcm3c
+https://kyjsq.lanzous.com/iSGTMemc57a
 
 备用下载链接1：
 

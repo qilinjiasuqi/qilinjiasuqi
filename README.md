@@ -12,8 +12,8 @@
 
 
 2.第二种下载方式，
-国内网盘下载，速度快，用浏览器访问打开这个网址
-https://kyjsq.lanzous.com/iSGTMemc57a
+国内网盘下载，速度快，用电脑浏览器或者手机浏览器访问打开这个网址
+https://laodi.lanzous.com/ivBDMempl1i
 
 备用下载链接1：
 

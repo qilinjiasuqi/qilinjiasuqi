@@ -16,7 +16,7 @@ https://w.url.cn/s/AURfwfL
 
 2.第二种下载方式，
 国内网盘下载，速度快，用电脑浏览器或者手机浏览器访问打开这个网址
-https://laodi.lanzous.com/ivBDMempl1i
+https://xqu.lanzous.com/itlV6e6bl7e
 
 
 

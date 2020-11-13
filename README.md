@@ -48,6 +48,8 @@ https://xqu.lanzous.com/itlV6e6bl7e
 【保护隐私】 安装后一键连接，无需填写任何注册信息，同时强大的SSL加密技术与IP隐藏，让您完全匿名，安全无忧。
 
 -----【联系方式】-----
+官网下载：（需要科学尚往才能打开）
+https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
 只要给邮箱qinhaihai56@gmail.com发送任何邮件，我都会第一时间回复，把最新的家速气获取地址邮件回复告知你。
 

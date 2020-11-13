@@ -11,7 +11,7 @@ https://w.url.cn/s/AURfwfL
 麒麟加速器官网下载 （可在手机上访问上面的网址，直接下载到手机里，方便快速安装）
 https://w.url.cn/s/AURfwfL
 
-
+国内网盘快速下载 https://160.lanzoui.com/iVyCYh238gb
 
 
 2.第二种下载方式，

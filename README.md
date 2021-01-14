@@ -8,6 +8,8 @@
 1.第一种下载方式
 https://w.url.cn/s/AURfwfL
 
+https://rebrand.ly/typeirz
+
 麒麟加速器官网下载 （可在手机上访问上面的网址，直接下载到手机里，方便快速安装）
 https://w.url.cn/s/AURfwfL
 

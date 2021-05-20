@@ -16,14 +16,14 @@ https://w.url.cn/s/AURfwfL
 国内网盘快速下载1 https://160.lanzoui.com/iVyCYh238gb
 
 国内网盘快速下载2
-https://wws.lanzous.com/ijQCNkmw0sh
+https://wws.lanzoui.com/ijQCNkmw0sh
 
 
 2.第二种下载方式，
 国内网盘下载3，速度快，用电脑浏览器或者手机浏览器访问打开这个网址
-https://xqu.lanzous.com/itlV6e6bl7e
+https://xqu.lanzoui.com/itlV6e6bl7e
 国内网盘下载
-https://wwe.lanzous.com/iqB1wkmwpji
+https://wwe.lanzoui.com/iqB1wkmwpji
 
 （如果网盘链接失效，请用第一种下载方式）
 
